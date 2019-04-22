@@ -1,1 +1,0 @@
-ghi gi thi ghi
